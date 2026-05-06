@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @danlawer
 - 👀 I’m interested in ...programing
-- 🌱 I’m currently learning ... Dta scince 
+- 🌱 I’m currently learning ... Data scince 
 - 💞️ I’m looking to collaborate on ...programing anb Data scince
 - 📫 How to reach me ...danlawer2005@gmail.com
 - 😄 Pronouns: ...him
